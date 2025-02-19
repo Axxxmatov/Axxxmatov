@@ -1,16 +1,28 @@
-## Hi there 👋
+# 💫 About Me:
+❸ ❷ ❷ ●▬▬▬▬▬ 𝐖𝐄𝐋𝐂𝐎𝐌𝐄 𝐓𝐎 𝐌𝐘 𝐏𝐑𝐎𝐅𝐈𝐋𝐄 ▬▬▬▬▬● ⎯　❐　⤬<br><br>Меня Зовут Эмиль Ахматов [vk.com]<br>Мой сервер: CS 2 IP: rebranding<br>Мой сервер: CS 1.6 IP: rebranding<br>➛My Site: PROJECT AX TV GAME \SITE [axtvgame.ru]<br><br>====================PROJECT AXTV GAME???============================<br>PROJECT AXTV GAME - что за проект? Что там есть? все ответы тут.<br><br>PROJECT AXTV GAME — твой вход в мир, где игра становится реальностью.<br><br>Не просто играй — зарабатывай, создавай и развивайся вместе с нами. Это не очередная "сказка" о миллионах из воздуха, а реальная возможность для тех, кто готов вложить свои силы и время.<br><br>Что это за проект?<br>PROJECT AXTV GAME — это платформа, где:<br><br>Игроки могут зарабатывать реальные деньги, выполняя задания, крутя кейсы и продавая скины. Да, ты можешь вывести свои деньги на карту любого банка.<br><br>Создатели и программисты получают безопасную площадку для продажи своих товаров и услуг. Никакого обмана — все сделки под контролем модераторов.<br><br>Владельцы серверов могут добавить свой сервер на платформу бесплатно, монетизировать его и развивать вместе с нами. Забудь о затратах на хостинги и сайты — мы даем тебе инструменты для роста.<br><br>Почему это стоит твоего внимания?<br>Заработок в игре: Не просто играй, а получай за это реальные деньги. Выполняй задания, продавай скины, участвуй в событиях — и выводи средства на карту.<br><br>Безопасность: Мы не обещаем "золотых гор", но гарантируем честность. Все сделки проходят через модерацию, чтобы никто не остался в минусе.<br><br>Рынок для создателей: Продавай свои разработки, шаблоны, модули или услуги. Здесь есть спрос на твои навыки.<br><br>Форум и поддержка: Найди ответы на свои вопросы, получи помощь от сообщества или поделись своим опытом. У нас есть все, чтобы ты мог развиваться.<br><br>Новости киберспорта: Будь в курсе событий игрового мира.<br><br>Особый акцент для владельцев серверов:<br>Ты создаешь серверы? Тогда это твой шанс. Добавляй свой сервер на платформу бесплатно, привлекай игроков и монетизируй свои проекты. Мы не берем скрытых комиссий и не заставляем тебя платить за хостинги. В будущем мы запустим мониторинг серверов, чтобы твой проект стал еще заметнее.<br><br>Честно и без лишних обещаний:<br>Мы не говорим, что это "легкие деньги". Но мы даем тебе возможность зарабатывать, если ты готов вложить свои силы и время. Никаких скрытых платежей, только честные правила и открытые возможности.<br><br>Почему PROJECT AXTV GAME?<br>Потому что это не просто игра. Это сообщество, где каждый может найти свое место: игрок, создатель, владелец сервера или просто фанат киберспорта. Мы строим крупнейшее российское игровое сообщество, и ты можешь стать его частью.<br><br>PROJECT AXTV GAME — твоя игра, твои правила, твои возможности.<br>Не жди, пока кто-то другой сделает первый шаг. Регистрируйся, пробуй, зарабатывай и развивайся вместе с нами.<br><br>====================PROJECT AXTV GAME✓✓✓===========================<br><br>☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ 𝓟𝓮𝓻𝓼𝓸𝓷𝓪𝓵 𝓘𝓷𝓯𝓸: ☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆<br><br>➛𝒩𝒶𝓂𝑒: Эмиль Ахматов<br>➛𝒜𝑔𝑒: 27<br>➛𝐵𝒾𝓇𝓉𝒽𝒹𝒶𝓎: 02.02<br>➛𝒩𝒶𝓉𝒾𝑜𝓃𝒶𝓁𝒾𝓉𝓎: Tatar<br>➛𝑀𝒶𝒾𝓃 𝓁𝒶𝓃𝑔𝓊𝒶𝑔𝑒: RU<br>➛𝐸𝓍𝓅𝑒𝓇𝒾𝑒𝓃𝒸𝑒 𝓅𝓁𝒶𝓎𝒾𝓃𝑔: 2 year<br><br>☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ 𝓢𝓞𝓒𝓘𝓐𝓛 𝓜𝓔𝓓𝓘𝓐: ☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆�
 
-<!--
-**Axxxmatov/Axxxmatov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+## 🌐 Socials:
+[![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/q6737FzG59) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:Axxxmatov.booking@inbox.ru) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# 💻 Tech Stack:
+![JavaScript](https://img.shields.io/badge/javascript-%23323330.svg?style=for-the-badge&logo=javascript&logoColor=%23F7DF1E) ![HTML5](https://img.shields.io/badge/html5-%23E34F26.svg?style=for-the-badge&logo=html5&logoColor=white) ![PHP](https://img.shields.io/badge/php-%23777BB4.svg?style=for-the-badge&logo=php&logoColor=white) ![Python](https://img.shields.io/badge/python-3670A0?style=for-the-badge&logo=python&logoColor=ffdd54) ![CSS3](https://img.shields.io/badge/css3-%231572B6.svg?style=for-the-badge&logo=css3&logoColor=white) ![Cloudflare](https://img.shields.io/badge/Cloudflare-F38020?style=for-the-badge&logo=Cloudflare&logoColor=white) ![Bootstrap](https://img.shields.io/badge/bootstrap-%238511FA.svg?style=for-the-badge&logo=bootstrap&logoColor=white) ![.Net](https://img.shields.io/badge/.NET-5C2D91?style=for-the-badge&logo=.net&logoColor=white) ![Django](https://img.shields.io/badge/django-%23092E20.svg?style=for-the-badge&logo=django&logoColor=white) ![Joomla](https://img.shields.io/badge/joomla-%235091CD.svg?style=for-the-badge&logo=joomla&logoColor=white) ![jQuery](https://img.shields.io/badge/jquery-%230769AD.svg?style=for-the-badge&logo=jquery&logoColor=white) ![NodeJS](https://img.shields.io/badge/node.js-6DA55F?style=for-the-badge&logo=node.js&logoColor=white) ![Laravel](https://img.shields.io/badge/laravel-%23FF2D20.svg?style=for-the-badge&logo=laravel&logoColor=white) ![Snowflake](https://img.shields.io/badge/snowflake-%2329B5E8.svg?style=for-the-badge&logo=snowflake&logoColor=white) ![Apache](https://img.shields.io/badge/apache-%23D42029.svg?style=for-the-badge&logo=apache&logoColor=white) ![Nginx](https://img.shields.io/badge/nginx-%23009639.svg?style=for-the-badge&logo=nginx&logoColor=white) ![MySQL](https://img.shields.io/badge/mysql-4479A1.svg?style=for-the-badge&logo=mysql&logoColor=white) ![MariaDB](https://img.shields.io/badge/MariaDB-003545?style=for-the-badge&logo=mariadb&logoColor=white) ![SQLite](https://img.shields.io/badge/sqlite-%2307405e.svg?style=for-the-badge&logo=sqlite&logoColor=white) ![Adobe](https://img.shields.io/badge/adobe-%23FF0000.svg?style=for-the-badge&logo=adobe&logoColor=white) ![Adobe After Effects](https://img.shields.io/badge/Adobe%20After%20Effects-9999FF.svg?style=for-the-badge&logo=Adobe%20After%20Effects&logoColor=white) ![Adobe Audition](https://img.shields.io/badge/Adobe%20Audition-9999FF.svg?style=for-the-badge&logo=Adobe%20Audition&logoColor=white) ![Adobe Photoshop](https://img.shields.io/badge/adobe%20photoshop-%2331A8FF.svg?style=for-the-badge&logo=adobe%20photoshop&logoColor=white) ![Adobe Premiere Pro](https://img.shields.io/badge/Adobe%20Premiere%20Pro-9999FF.svg?style=for-the-badge&logo=Adobe%20Premiere%20Pro&logoColor=white) ![GitHub](https://img.shields.io/badge/github-%23121011.svg?style=for-the-badge&logo=github&logoColor=white)
+# 📊 GitHub Stats:
+![](https://github-readme-stats.vercel.app/api?username=Axxxmatov&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
+![](https://github-readme-streak-stats.herokuapp.com/?user=Axxxmatov&theme=dark&hide_border=false)<br/>
+![](https://github-readme-stats.vercel.app/api/top-langs/?username=Axxxmatov&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
+
+## 🏆 GitHub Trophies
+![](blob:https://gprm.itsvg.in/8b20a033-2e4e-470a-afd1-21ff5bca74c4)
+
+### ✍️ Random Dev Quote
+![](blob:https://gprm.itsvg.in/640d4610-d718-4459-9531-d77ac3d395a5)
+
+---
+[![](https://visitcount.itsvg.in/api?id=Axxxmatov&icon=1&color=3)](https://visitcount.itsvg.in)
+
+  ## 💰 You can help me by Donating
+  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/paypal.me/axxxmatov) 
+
+  
+<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
